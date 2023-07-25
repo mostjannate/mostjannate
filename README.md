@@ -1,4 +1,4 @@
-![ I am a YouTube Marketing Expert | Instagram | LinkedIn| Facebook ][(https://scontent.fdac41-1.fna.fbcdn.net/v/t39.30808-6/358381105_111799008639093_2615853960550265829_n.png?stp=dst-png_s960x960&_nc_cat=106&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeFmaQ7hD5WajeoekwwhItu-1y_dZ0P1uMLXL91nQ_W4wgCk0VJPwP8wb1Uz9YHwPdRcWmT9lQGbolncux1PjYzn&_nc_ohc=lCLAIg40iioAX-UNOmW&_nc_ht=scontent.fdac41-1.fna&oh=00_AfCrrILKIZl13DKJH7vtRBmo0_Tz4iLWy6ID7wy3StDt-g&oe=64C5168E)](https://media.licdn.com/dms/image/D5616AQFH9mFq5un4uA/profile-displaybackgroundimage-shrink_350_1400/0/1674390646245?e=1695859200&v=beta&t=lSZl5c72gfpNuUBBioZY1hGacV87xhqDOwpdFidxswo)
+![ I am a YouTube Marketing Expert | Instagram | LinkedIn| Facebook ](https://media.licdn.com/dms/image/D5616AQFH9mFq5un4uA/profile-displaybackgroundimage-shrink_350_1400/0/1674390646245?e=1695859200&v=beta&t=lSZl5c72gfpNuUBBioZY1hGacV87xhqDOwpdFidxswo)
 
 ### Hi there 👋, I'm mst jannate khatun.
 ####  I am a YouTube Marketing Expert | Instagram | LinkedIn| Facebook 
